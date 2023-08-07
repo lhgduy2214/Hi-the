@@ -1,2 +1,2 @@
 # Hi-the
-I am Le Hoang Duy, student at @VLUTE,@lhgduy2214 
+I am Le Hoang Duy, student at @V,@lhgduy2214 
